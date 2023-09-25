@@ -30,4 +30,3 @@ https://drive.google.com/drive/u/0/folders/1agqcguIILl5YXkvSpjakjKqYknVSexBt
 7. Вкл/Выкл рандом.
 
 На этом все. С остальным как нибудь сами, все основы я рассказал. Приятного пользования!!!
-*Бутович Глеб Николаевич*
